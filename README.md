@@ -1,0 +1,2 @@
+# TindaTala
+MIDTERM OUTPUT
